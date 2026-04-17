@@ -14,4 +14,4 @@ Overall, I just want to enjoy what I used to enjoy before. I don't plan to be se
 
 If you're a former fan of the Dsmp as well, I would love to be your friend and recall the old times. But let's also keep in mind to be conscious and respectful! Avoid sharing/giving negative vibes towards others or me. That's all.
 
-- :)
+~ :)
