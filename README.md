@@ -8,6 +8,8 @@ Dos with me: c*h and interact freely {just don't be weird} , whisper to interact
 
 Don'ts with me: overly getting personal or starting drama for no specific reason , being rude in general , having an offensive/immature attitude , saying overly inappropriate or sexual stuff. 
 
+--
+
 Including Dsmp: I should make it clear that I have the free will to like whatever I want to like/enjoy. I might look problematic to other people's point of view because of me liking Dream. But I'm here to make it clear that I take more interest in his character and videos. I don't include irl/personal issues that he'd been accused of. Also, I'm not entirely sure if some of those accusations are true, but if you believe they are, that's completely okay! I'm not gonna get in your way of what you think or don't think is true.
 
 Overall, I just want to enjoy what I used to enjoy before. I don't plan to be seen as the type of person who is ignorant or problematic for my interests.
