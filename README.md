@@ -1,6 +1,6 @@
 Name: Clarisse , Gracie , or even Divine {actual name.}
 
-Language I speak: Tagalog , English
+Language I speak: Filipino , English
 
 Sexuality: Aroace , Lesbian
 
