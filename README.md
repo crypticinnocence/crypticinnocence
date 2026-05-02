@@ -1,4 +1,4 @@
-Name: Clarisse , Gracie , or even Divine {actual name.}
+Name: Clarisse , Gracie , or even Divine.
 
 Language I speak: Filipino , English
 
