@@ -1,17 +1,20 @@
 ꒦꒷︶꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷🗝️~𓏲ּ𝄢꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦︶꒷꒦
 
-Name: Clarisse , Gracie , or even Divine.
+ɴᴀᴍᴇ: ᴄʟᴀʀɪꜱꜱᴇ , ɢʀᴀᴄɪᴇ , ᴏʀ ᴇᴠᴇɴ ᴅɪᴠɪɴᴇ.
 
-Language I speak: Filipino , English
+ʟᴀɴɢᴜᴀɢᴇ ɪ ꜱᴘᴇᴀᴋ: ꜰɪʟɪᴘɪɴᴏ , ᴇɴɢʟɪꜱʜ
 
-Sexuality: Aroace , Lesbian
+ꜱᴇxᴜᴀʟɪᴛʏ: ᴀʀᴏᴀᴄᴇ , ʟᴇꜱʙɪᴀɴ
 
-Dos with me: c*h and interact freely {just don't be weird} , whisper to interact if random/not friend , interact first {often afk or busy irl} , keep a respectful and mature approach if random/not friend {or be a little silly, I don't mind that either!} , if I say/do something you're uncomfortable with- please inform me! I'll understand.
+Pronouns: Any / She / her
+{ I don't really care. }
 
-Don'ts with me: overly getting personal or starting drama for no specific reason , being rude in general , having an offensive/immature attitude , saying overly inappropriate or sexual stuff.
+ᴅᴏꜱ ᴡɪᴛʜ ᴍᴇ: ᴄ*ʜ ᴀɴᴅ ɪɴᴛᴇʀᴀᴄᴛ ꜰʀᴇᴇʟʏ {ᴊᴜꜱᴛ ᴅᴏɴ'ᴛ ʙᴇ ᴡᴇɪʀᴅ} , ᴡʜɪꜱᴘᴇʀ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ ɪꜰ ʀᴀɴᴅᴏᴍ/ɴᴏᴛ ꜰʀɪᴇɴᴅ , ɪɴᴛᴇʀᴀᴄᴛ ꜰɪʀꜱᴛ {ᴏꜰᴛᴇɴ ᴀꜰᴋ ᴏʀ ʙᴜꜱʏ ɪʀʟ} , ᴋᴇᴇᴘ ᴀ ʀᴇꜱᴘᴇᴄᴛꜰᴜʟ ᴀɴᴅ ᴍᴀᴛᴜʀᴇ ᴀᴘᴘʀᴏᴀᴄʜ ɪꜰ ʀᴀɴᴅᴏᴍ/ɴᴏᴛ ꜰʀɪᴇɴᴅ {ᴏʀ ʙᴇ ᴀ ʟɪᴛᴛʟᴇ ꜱɪʟʟʏ, ɪ ᴅᴏɴ'ᴛ ᴍɪɴᴅ ᴛʜᴀᴛ ᴇɪᴛʜᴇʀ!} , ɪꜰ ɪ ꜱᴀʏ/ᴅᴏ ꜱᴏᴍᴇᴛʜɪɴɢ ʏᴏᴜ'ʀᴇ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ ᴡɪᴛʜ- ᴘʟᴇᴀꜱᴇ ɪɴꜰᴏʀᴍ ᴍᴇ! ɪ'ʟʟ ᴜɴᴅᴇʀꜱᴛᴀɴᴅ.
+
+ᴅᴏɴ'ᴛꜱ ᴡɪᴛʜ ᴍᴇ: ᴏᴠᴇʀʟʏ ɢᴇᴛᴛɪɴɢ ᴘᴇʀꜱᴏɴᴀʟ ᴏʀ ꜱᴛᴀʀᴛɪɴɢ ᴅʀᴀᴍᴀ ꜰᴏʀ ɴᴏ ꜱᴘᴇᴄɪꜰɪᴄ ʀᴇᴀꜱᴏɴ , ʙᴇɪɴɢ ʀᴜᴅᴇ ɪɴ ɢᴇɴᴇʀᴀʟ , ʜᴀᴠɪɴɢ ᴀɴ ᴏꜰꜰᴇɴꜱɪᴠᴇ/ɪᴍᴍᴀᴛᴜʀᴇ ᴀᴛᴛɪᴛᴜᴅᴇ , ꜱᴀʏɪɴɢ ᴏᴠᴇʀʟʏ ɪɴᴀᴘᴘʀᴏᴘʀɪᴀᴛᴇ ᴏʀ ꜱᴇxᴜᴀʟ ꜱᴛᴜꜰꜰ.
 
 --
 
-Note: If I randomly stop interacting/talking, it's either I'm uncomfortable , busy , or spectating.
+ɴᴏᴛᴇ: ɪꜰ ɪ ʀᴀɴᴅᴏᴍʟʏ ꜱᴛᴏᴘ ɪɴᴛᴇʀᴀᴄᴛɪɴɢ/ᴛᴀʟᴋɪɴɢ, ɪᴛ'ꜱ ᴇɪᴛʜᴇʀ ɪ'ᴍ ᴜɴᴄᴏᴍꜰᴏʀᴛᴀʙʟᴇ , ʙᴜꜱʏ , ᴏʀ ꜱᴘᴇᴄᴛᴀᴛɪɴɢ.
 
 ~ :)
