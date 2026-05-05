@@ -1,3 +1,5 @@
+꒦꒷︶꒦꒷꒦꒷꒦꒷꒦꒷꒦꒷🗝️~𓏲ּ𝄢꒷꒦꒷꒦꒷꒦꒷꒦꒷꒦︶꒷꒦
+
 Name: Clarisse , Gracie , or even Divine.
 
 Language I speak: Filipino , English
