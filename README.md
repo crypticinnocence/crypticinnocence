@@ -29,5 +29,3 @@
 
 **~~ɪ'ʟʟ ʙᴇ ᴛʜᴇ ʟᴀꜱᴛ ᴛʜɪɴɢ ʏᴏᴜ ꜱᴇᴇ.~~**
 ~ :)
-
-❥https://github.com/crypticinnocence/crypticinnocence/blob/e5802e060e1cc3c199552e1c6c0c70452bf9f2f6/IMG_20260507_190144.jpg
